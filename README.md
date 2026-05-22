@@ -35,5 +35,5 @@ contact-rich tasks where vision alone is insufficient.
 ## 📬 Contact
 
 💼 LinkedIn: www.linkedin.com/in/omar-mohamed-804b48201
-🌐 Portfolio:https://omarmohamed5699.github.io/ 
+🌐 Portfolio:https://Omar-Mohamed5723.github.io/  
 📧 Email: omaralbadry7572@gmail.com
